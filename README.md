@@ -13,4 +13,23 @@ Ejercicio 11 y 12 ejecución
 
 Ejercicio 13 ejecución
 
+![image](https://github.com/user-attachments/assets/ef0fdfcd-ef2b-4340-b1c1-efde12dcbc7d)
+
+Ejercicio 14 ejecución
+
+![image](https://github.com/user-attachments/assets/6042dbe2-aae1-4628-b742-32875fcd1c1f)
+
+Ejercicio 15 ejecución
+
+![image](https://github.com/user-attachments/assets/e9c63af6-c16b-4eae-a5aa-ad9c6f3f76b5)
+
+Ejercicio 16 y 17 ejecución
+
+![image](https://github.com/user-attachments/assets/66a964bf-b346-4825-a389-278430865c6a)
+
+
+
+
+
+
 
